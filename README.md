@@ -36,8 +36,6 @@ I am currently brainstorming, architecting, and preparing to launch **brand new 
 
 ## 📈 Let's Connect & Grow Together
 * **Freelance Profiles:** Find my approved professional profile on **Upwork**, **Mostaql**, and **Hsoub**.
-* **Let's Network:** [www.linkedin.com/in/faisal-almaskari-523537409
-
-] | [falmaskari18@gmail.com]
-
+* **Let's Network:** [www.linkedin.com/in/faisal-almaskari] | [falmaskari18@gmail.com]
+ 
 *“Fueling my passion, learning every day, and coding the future.”* ⚡
